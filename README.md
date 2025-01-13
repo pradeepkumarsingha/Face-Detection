@@ -52,5 +52,5 @@ Contributions are welcome! Feel free to submit a pull request or open an issue f
 📞 Contact
 For questions or support:  7855900487
 
-📧 Email: your-mr.pradeepkumarsingha@gmail.com
+📧 Email: mr.pradeepkumarsingha@gmail.com
 
